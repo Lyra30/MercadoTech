@@ -1,4 +1,4 @@
 # MercadoTech
-Diana Valeria Vásquez Díaz
+Diana Valeria Vásquez Díaz: :ghost:
 Heylen Duarte
 Julieth Rubio
